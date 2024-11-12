@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on some interesting projects solving real life programs !!
 - 📫 How to reach me :-
 - Email: aaditya23mc001@dtu.ac.in
-- Instagram: imaaadiiii
+- Instagram: https://www.instagram.com/imaaadiiii
 - 😄 Pronouns: You can call me aadiii
 
 <!---
